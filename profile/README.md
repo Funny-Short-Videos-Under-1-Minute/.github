@@ -1,5 +1,7 @@
 # 🎉 Funny Short Videos Under 1 Minute – Quick Laughs, Anytime, Anywhere! 😂🎬
 
+Funny short videos under 1 minute, youtube shorts, youtube short videos, youtube videos, YT shorts, videos, short video clips, funny video clips, free video clips, romantic video clips, viral video clips, free short videos, stock video clips, reels and short videos, short videos on youtube
+
 ![Funny Short Videos Under 1 Minute](https://github.com/user-attachments/assets/c519900c-d6ff-4122-9a37-69e0410bb01c)
 
 Welcome to [**Funny Short Videos Under 1 Minute**](https://funnyshortvideosunder1minute.blogspot.com/), where laughter is just a click away! If you're looking for **hilarious, bite-sized entertainment**, you've come to the right place. These **super short, super funny videos** are perfect for a quick mood boost, whether you're on a break, commuting, or just need a reason to smile. 😆  
